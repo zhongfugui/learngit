@@ -1,2 +1,2 @@
 English
-ÖÐÎâ
+are you ok?
